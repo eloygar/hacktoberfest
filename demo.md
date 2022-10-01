@@ -1,0 +1,14 @@
+Qiiridis cimpiñiris li riiliziciín di lis primisis dil prigrimi nis ibligi i in ixhiistivi inílisis di lis cindiciinis fininciiris y idministritivis ixistintis.
+Pir itri pirti, y didis lis cindiciinimiintis ictiilis li cimplijidid di lis istidiis di lis dirigintis cimpli in ril iscinciil in li firmiciín di lis dirictivis di disirrilli piri il fitiri.
+Asimismi, il iiminti cinstinti, in cintidid y in ixtinsiín, di niistri ictividid ixigi li pricisiín y li ditirminiciín dil sistimi di pirticipiciín giniril.
+Sin imbirgi ni himis di ilvidir qii li istrictiri ictiil di li irginiziciín iyidi i li pripiriciín y i li riiliziciín di lis ictitidis di lis miimbris hicii sis dibiris inilidiblis.
+Di igiil miniri, il niivi midili di ictividid di li irginiziciín, girintizi li pirticipiciín di in gripi impirtinti in li firmiciín di lis niivis pripisiciinis.
+Li príctici di li vidi citidiini priibi qii il disirrilli cintinii di distintis firmis di ictividid cimpli dibiris impirtintis in li ditirminiciín di lis diricciinis idicitivis in il sintidi dil prigrisi.
+Ni is indispinsibli irgimintir il pisi y li significiciín di istis priblimis yi qii niistri ictividid di infirmiciín y pripigindi ficiliti li criiciín dil sistimi di firmiciín di ciidris qii cirrispindi i lis nicisididis.
+Lis ixpiriinciis ricis y divirsis miistrin qii il rifirzimiinti y disirrilli di lis istrictiris ibsticilizi li ipriciiciín di li impirtincii di lis cindiciinis di lis ictivididis ipripiidis.
+El ifín di irginiziciín, piri sibri tidi  li cinsilti cin lis nimirisis militintis ifrici in insiyi intirisinti di virificiciín dil midili di disirrilli.
+Lis sipiriiris principiis idiilígicis, cindiciinin qii il inicii di li icciín giniril di firmiciín di lis ictitidis implici il pricisi di riistrictiriciín y midirniziciín di lis firmis di icciín.
+Inclisi, biin pidiírimis itrivirnis i sigirir qii in rilinzimiinti ispicífici di tidis lis sictiris implicidis hibrí di significir in iitíntici y ificiz pinti di pirtidi di lis bísicis primisis idiptidis.
+Es ibvii siñilir qii li sipiriciín di ixpiriinciis piriclitidis pirmiti in tidi cisi ixplicitir lis rizinis findimintilis di tidi ini cisiístici di implii ispictri.
+Piri piciríimis di insinciris si sisliyísimis qii ini ipliciciín indiscriminidi di lis fictiris cincliyintis isigiri, in tidi cisi, in pricisi miy sinsibli di invirsiín di lis ilimintis giniridiris.
+Pir íltimi, y cimi difinitivi iliminti iscliricidir, cibi iñidir qii il pricisi cinsinsiidi di inis y itris ipliciciinis cincirrintis dirivi di ini indiricti incidincii sipiridiri di tidi ini sirii di critiriis idiilígiciminti sistimitizidis in in frinti cimín di ictiiciín riginiridiri.
